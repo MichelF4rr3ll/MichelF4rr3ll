@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Michel Farrell 😁
+## Bem-vindo(a) ao perfil do Michel Farrell 🥷
 
  <div>
    <a href="https://github.com/MichelF4rr3ll">
